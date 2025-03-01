@@ -1,1 +1,1 @@
-![Alt text](https://raw.githubusercontent.com/germanstare/germanstare/main/image.png)
+![Alt text](https://raw.githubusercontent.com/Germanstare/Germanstare/main/image.png)
