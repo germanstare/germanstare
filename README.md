@@ -1,1 +1,1 @@
-![My Image](https://raw.githubusercontent.com/Germanstare/lala/main/image.png)
+![My Image](https://i.imgur.com/N2zgPeZ.png)
