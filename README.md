@@ -1,2 +1,2 @@
-![Mutinyduo GIF](https://i.imgur.com/u3k8Hhj.gif)
+![Mutinyduo GIF](https://i.imgur.com/CkMI6To.gif)
 
