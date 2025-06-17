@@ -7,9 +7,7 @@ THIS IS WHY ZAM USED YOU
 
 
 
-Btw i hate talking to ppl ok!
-I love you princeratrick
-![princeratrick](https://github.com/user-attachments/assets/079dad74-ff8d-4dda-993f-a96535d1b4bd)
+NEVERMIND FUCK PRINCERATRICK AND R4TRICK THAT GUY DATED A GROOMER FUCK Y R4TRICK
 
 bleeee
 
