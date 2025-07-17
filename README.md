@@ -1,6 +1,5 @@
 I FUCKING hate ponytown players
-🤤🤤🤤🤤🤤 Ls fandom on thin ice since y'![IMG_5361](https://github.com/user-attachments/assets/86551ec7-3a5e-45d7-8a24-6a1cbf98d95f)
-all cringe as fuck #Cornballs 
+🤤🤤🤤🤤🤤![IMG_5361](https://github.com/user-attachments/assets/86551ec7-3a5e-45d7-8a24-6a1cbf98d95f)Ls fandom on thin ice since y'all cringe as fuck #Cornballs 
 
 i liek zam btw 
 ![IMG_1952](https://github.com/user-attachments/assets/9bdb2119-8115-4d49-9f96-0e991289969b)
