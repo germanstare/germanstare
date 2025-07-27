@@ -1,4 +1,6 @@
-I FUCKING hate ponytown players
+ME AND FRIENDSDSSSS <img width="648" height="325" alt="Untitled721_20250727210608" src="https://github.com/user-attachments/assets/3e9d3d41-4779-4fe2-820e-cdb7e9c0777a" />
+
+FUCKING hate ponytown players
 🤤🤤🤤🤤🤤![IMG_5361](https://github.com/user-attachments/assets/86551ec7-3a5e-45d7-8a24-6a1cbf98d95f)Ls fandom on thin ice since y'all cringe as fuck #Cornballs 
 
 i liek zam btw AND SHARPNESS (imlazy to put him inhere)
