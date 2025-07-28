@@ -1,5 +1,5 @@
-ME AND<img width="648" height="325" alt="Untitled721_20250728185905" src="https://github.com/user-attachments/assets/426929f0-d623-43cd-9d69-3c96dcad76e7" />
- stupid people:/ 
+ME ANDstupid people:/  <img width="648" height="325" alt="Untitled721_20250728185905" src="https://github.com/user-attachments/assets/426929f0-d623-43cd-9d69-3c96dcad76e7" />
+
 
 
 FUCKING hate ponytown players
