@@ -1,5 +1,6 @@
-ME AND stupid people:/ 
-<img width="648" height="325" alt="Untitled721_20250728010655" src="https://github.com/user-attachments/assets/318b9b7f-9537-4eaa-bda1-8d56196d5a80" />
+ME AND<img width="648" height="325" alt="Untitled721_20250728185905" src="https://github.com/user-attachments/assets/426929f0-d623-43cd-9d69-3c96dcad76e7" />
+ stupid people:/ 
+
 
 FUCKING hate ponytown players
 🤤🤤🤤🤤🤤![IMG_5361](https://github.com/user-attachments/assets/86551ec7-3a5e-45d7-8a24-6a1cbf98d95f)Ls fandom on thin ice since y'all cringe as fuck #Cornballs 
