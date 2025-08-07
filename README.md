@@ -6,4 +6,4 @@ C+H is ok, i'm not talkative. I struggle with talking due to my schizoaffective 
 
 ![by wiskitt](https://files.catbox.moe/igvift.png)
 
-  AC: @Wiskitt :  -> [Rentry](https://rentry.co/-princezam) [ata](https://prettyprincess.atabook.org/)<- 
+  AC: @Wiskitt :  -> [Rentry](https://rentry.co/-princezam) [ata](https://crown.atabook.org/)<- 
