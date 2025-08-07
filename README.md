@@ -4,4 +4,4 @@ C+H is ok, i'm not talkative. I struggle with talking due to my schizoaffective 
 
 ![by wiskitt](https://files.catbox.moe/igvift.png)
 
--> [Rentry](https://rentry.co/-princezam) [Strawpage](https://xalicos.straw.page) <- 
+   -> [Rentry](https://rentry.co/-princezam) [Strawpage](https://xalicos.straw.page) <- 
