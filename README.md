@@ -1,9 +1,6 @@
-hi name is xal and im 18 and i hate cake⠀
-![](https://files.catbox.moe/3zy5xx.jpeg)
-⠀
-
-
-I struggle with [**schizoaffective disorder**](https://rentry.co/schizoaffectivedisorder) I do not know how to make friends nor have a perfect normal communication. Yes. I will come off as rude -> Often <- 
+![](https://files.catbox.moe/l0syvy.png)
+shoutout kAz ![](https://files.catbox.moe/y14uns.gif)
+shoutout Packet my two biggest fans ![](https://files.catbox.moe/y14uns.gif)
 
 
 
