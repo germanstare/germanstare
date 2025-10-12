@@ -9,3 +9,5 @@ Hi. im xal send me stuff in my ata ok.Ok
 
 ⠀
 ![](https://files.catbox.moe/ou3rky.png)
+
+ahhhh i have schizoaffective disorder. I dont know how to communicate very well with others. 
