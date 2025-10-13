@@ -1,4 +1,4 @@
-[**main rentry**](https://rentry.co/entity303) [**matching rentry**](https://rentry.co/voidpetal) & [**ATA**](https://sharpness.atabook.org/)
+[**main rentry**](https://rentry.co/coolkid) [**matching rentry**](https://rentry.co/voidpetal) & [**ATA**](https://sharpness.atabook.org/)
 
 ![](https://files.catbox.moe/68ismg.png)
 Hi. im xal send me stuff in my ata ok.Ok 
