@@ -1,12 +1,7 @@
-wip of the links uhm [**ata**](https://sharpness.atabook.org/)
-![](https://files.catbox.moe/68ismg.png)
-Hi. im xal send me stuff in my ata ok.Ok 
 
+⠀![](https://files.catbox.moe/698nfn.jpeg) shame on you [**@TTHEGRIND**](https://github.com/TTHEGRIND)
 
-⠀
-<img src="https://komarev.com/ghpvc/?username=germanstare&label= SharpnessAndWemmbuHaters&color=961AD7&style=water" align="left">
+<img src="https://komarev.com/ghpvc/?username=germanstare&label= owo&color=000000&style=water" align="left">
 
 ⠀
-![](https://files.catbox.moe/ou3rky.png)
 
-ahhhh i have schizoaffective disorder. I dont know how to communicate very well with others. 
