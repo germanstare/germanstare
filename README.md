@@ -1,7 +1,7 @@
-Der Baum steht schon lange da, mein Schatz
-Er wartet nur darauf, dass wir uns trennen
-Der Baum steht schon da, mein Schatz
-Ein wunderschöner Baum, um sich zu erhängen
+Tanz' mit mir den Galgentanz
+Solange wir, solange wir noch nicht hängen
+Tanz' mit mir den Galgentanz
+Solange wir, solange wir noch können
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Rentry**](https://rentry.co/nem)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Atabook**](https://sharpness.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif)
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2214.png)
