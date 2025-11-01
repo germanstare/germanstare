@@ -3,7 +3,7 @@ Solange wir, solange wir noch nicht hängen
 Tanz' mit mir den Galgentanz
 Solange wir, solange wir noch können
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Rentry**](https://rentry.co/nem)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Atabook**](https://sharpness.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif)
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Rentry**](https://rentry.co/nem)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Atabook**](https://mugm.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif)
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2214.png)
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2227.png)⠀Yo im xal nd a gay cis guy im 18 and diagnosed with schizoaffective disorder. I dont know how to communicate with others that well and also have anger issues which runs in the family ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2226.gif)
