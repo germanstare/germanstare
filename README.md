@@ -8,7 +8,7 @@ Solange wir, solange wir noch können
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2227.png)⠀Yo im xal nd a gay cis guy im 18 and diagnosed with schizoaffective disorder. I dont know how to communicate with others that well and also have anger issues which runs in the family ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2226.gif)
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2227.png) I pretty much like PrinceZam Tai Nemvevo Mugm
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2227.png) I pretty much like PrinceZam Tai Nemvevo Mugm Sharpness
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2227.png) Gen fuck urself if ur one of my ex friends idk what ur problem is js leave me the fuck alone ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2228.gif)
 
