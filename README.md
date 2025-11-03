@@ -7,7 +7,11 @@ Solange wir, solange wir noch können
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2214.png)
 
 
-https://github.com/user-attachments/assets/5b62db2f-8d4b-4722-9b69-cf0a17d437d6
+
+
+https://github.com/user-attachments/assets/0c52906e-4fd3-424d-957f-7de381fe7ea9
+
+
 
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2214.png) 
