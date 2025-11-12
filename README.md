@@ -4,17 +4,24 @@ H̶A̶T̶E̶ ̶L̶I̶S̶T̶ best fwriends list; [**@tthegrind**](https://github.
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Rentry**](https://rentry.co/pe)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Atabook**](https://wemmbumc.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif)
 
-
 i like homestuck and mcyt (tai, nemvevo, zam, wemmbu, ecorridor, mugm)
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2685.png) ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2683.png) 
+⠀![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2685.png) ⠀⠀![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2683.png) 
 
-I am diagnosed with schizoaffective disorder i usually struggle with communication. Also i know when ur faking ur mental disorder so please stop acting like ur ill when u clearly just want attention
+
+
+xal 18 cis guy nd im diagnosed w schizoaffective disorder ok. gay and lithro
 
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2684.gif)
 
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= owo&color=000000&style=water" align="left">
+
+
+⠀
+
+
+
 
 
 listen to kendrick nd chief keef or die
