@@ -1,21 +1,22 @@
+H̶A̶T̶E̶ ̶L̶I̶S̶T̶ best fwriends list; [**@tthegrind**](https://github.com/TTHEGRIND)
+
+![](https://file.garden/aQGrUXVQel9xbBYT/Untitled872_20251111221813.png)
+
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Rentry**](https://rentry.co/pe)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Atabook**](https://wemmbumc.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif)
+
+
+i like homestuck and mcyt (tai, nemvevo, zam, wemmbu, ecorridor, mugm)
+
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2685.png) ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2683.png) 
+
 I am diagnosed with schizoaffective disorder i usually struggle with communication. Also i know when ur faking ur mental disorder so please stop acting like ur ill when u clearly just want attention
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Rentry**](https://rentry.co/pe)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Atabook**](https://wemmbumc.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif)
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2214.png)
 
-
-
-
-https://github.com/user-attachments/assets/0c52906e-4fd3-424d-957f-7de381fe7ea9
-
-
-
-
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2214.png) 
-Lets all shame [**@TTHEGRIND**](https://github.com/TTHEGRIND) 😂😂
-![](https://file.garden/aQGrUXVQel9xbBYT/01002B63-B52A-4552-8B9A-B55580BC2B3D.jpeg) 
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2684.gif)
 
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= owo&color=000000&style=water" align="left">
 
+
+listen to kendrick nd chief keef or die
 ⠀
 
