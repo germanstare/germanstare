@@ -13,7 +13,7 @@ i like homestuck and mcyt (tai, nemvevo, zam, wemmbu, ecorridor, mugm)
 xal 18 cis guy nd im diagnosed w schizoaffective disorder ok. gay and lithro
 
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2684.gif)
+![https://github.com/plqnetz](https://file.garden/aQGrUXVQel9xbBYT/IMG_2684.gif)
 
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= owo&color=000000&style=water" align="left">
 
