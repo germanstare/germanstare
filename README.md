@@ -1,6 +1,6 @@
 I am diagnosed with schizoaffective disorder i usually struggle with communication. Also i know when ur faking ur mental disorder so please stop acting like ur ill when u clearly just want attention
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Rentry**](https://rentry.co/pe)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Atabook**](https://sharpness.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif)
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Rentry**](https://rentry.co/pe)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif) [**Atabook**](https://wemmbumc.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2229.gif)
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2214.png)
 
 
