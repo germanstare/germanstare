@@ -1,4 +1,8 @@
-https://github.com/user-attachments/assets/31f22821-df80-47bd-b3e8-1a1540e9f296
+
+
+https://github.com/user-attachments/assets/a00b2e0f-d783-40d8-8274-bdb0a38e4f12
+
+
 
 H̶A̶T̶E̶ ̶L̶I̶S̶T̶ ⠀best fwriends list; [**@tthegrind**](https://github.com/TTHEGRIND)
 
