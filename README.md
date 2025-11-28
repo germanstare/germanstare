@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/awqphb.png)
+
 
 H̶A̶T̶E̶ ̶L̶I̶S̶T̶ ⠀best fwriends list; [**@tthegrind**](https://github.com/TTHEGRIND)
 
@@ -28,4 +28,4 @@ xal 18 cis guy nd im diagnosed w schizoaffective disorder ok. gay and lithro
 
 listen to kendrick nd chief keef or die
 ⠀
-
+![](https://files.catbox.moe/awqphb.png)
