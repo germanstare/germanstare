@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/0l7etr.jpeg) tthegrind btw
+![](https://files.catbox.moe/awqphb.png)
 
 H̶A̶T̶E̶ ̶L̶I̶S̶T̶ ⠀best fwriends list; [**@tthegrind**](https://github.com/TTHEGRIND)
 
