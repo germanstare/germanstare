@@ -7,7 +7,7 @@ H̶A̶T̶E̶ ̶L̶I̶S̶T̶ ⠀best fwriends list; [**@tthegrind**](https://gith
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/Untitled872_20251111221813.png)
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Rentry**](https://rentry.co/conexion)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Matching**](https://rentry.co/voidpetal)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Atabook**](https://wemmbumc.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif)
+![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Rentry**](https://rentry.co/sharpness)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**twt**](https://x.com/xalicos)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif) [**Atabook**](https://sharpness.atabook.org/)![](https://file.garden/aQGrUXVQel9xbBYT/IMG_2686.gif)
 
 i like homestuck and mcyt (tai, nemvevo, zam, wemmbu, ecorridor , Sharpness & mugm)
 
