@@ -1,10 +1,6 @@
 self proclaimed n1 sharpness fan sucks to be u
 
 
-🎄🎄🎄🎄[**hi guys pls sogn my tree**](https://colormytree.me/2025/01HGNWS2BW1XJZX7ZCJ9WS0MP9) <- if u r a random, ill try to sign back but i might not find yo tree 🎄🎄🎄oh so jolly
-
-
-
 H̶A̶T̶E̶ ̶L̶I̶S̶T̶ ⠀best fwriends list; [**@tthegrind**](https://github.com/TTHEGRIND)
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/Untitled872_20251111221813.png)
