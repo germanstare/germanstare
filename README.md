@@ -1,4 +1,4 @@
-self proclaimed n1 sharpness fan sucks to be u
+self proclaimed n1 sharpness fan sucks to be u YALL KNEWGENS ONLY KNOW SHARPLOW
 
 
 H̶A̶T̶E̶ ̶L̶I̶S̶T̶ ⠀best fwriends list; [**@tthegrind**](https://github.com/TTHEGRIND)
