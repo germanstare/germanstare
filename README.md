@@ -29,8 +29,8 @@ xal 18 cis guy nd im diagnosed w schizoaffective disorder ok. gay and lithro
 listen to kendrick nd chief keef or die
 ⠀
 ![](https://files.catbox.moe/awqphb.png)
-
-
-
+oh and jalter is my wife
+ohhh saber alter x jalter i love uu
+![](https://files.catbox.moe/5zhka4.jpeg)
 
 
