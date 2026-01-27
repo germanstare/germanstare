@@ -1,8 +1,12 @@
- dont contact me anywhere~
+![](https://files.catbox.moe/zgnpa2.png)
+
+dont contact me anywhere~
 i barely talk to anyone and it will atay like that ion wanna make friends ye🙂‍↕️🤔
 
 
-shit abt me -> [**here**](https://rentry.co/conexion)
+read this be4 interacting w me -> [**here**](https://rentry.co/conexion)
+
+
 ![](https://files.catbox.moe/22y650.jpeg)
 are you bipolar? cause why do u keep switching up
 
