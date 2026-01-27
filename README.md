@@ -1,5 +1,8 @@
-inactive~ dont contact me anywhere~
+ dont contact me anywhere~
 i barely talk to anyone and it will atay like that ion wanna make friends ye🙂‍↕️🤔
+
+
+shit abt me -> [**here**](https://rentry.co/conexion)
 ![](https://files.catbox.moe/22y650.jpeg)
 are you bipolar? cause why do u keep switching up
 
