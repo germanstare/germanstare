@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/zgnpa2.png)
 
-goodbye everyone😠😭😭😭😭😭👋👋👋👋👋👋👋 ![](https://files.catbox.moe/seybvj.png)
+goodbye everyone😭😭😭😭😭👋👋👋👋👋👋👋 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_5337.jpeg)
 dont contact me anywhere~
 i barely talk to anyone and it will atay like that ion wanna make friends ye🙂‍↕️🤔
 
