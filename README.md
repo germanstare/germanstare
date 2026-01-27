@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/zgnpa2.png)
 
-goodbye everyone😭😭😭😭😭👋👋👋👋👋👋👋 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_5337.jpeg)
+goodbye everyone😭😭😭😭😭👋👋👋👋👋👋👋 ![](https://file.garden/aQGrUXVQel9xbBYT/kendrick_lamar_left_the_group.gif)
 dont contact me anywhere~
 i barely talk to anyone and it will atay like that ion wanna make friends ye🙂‍↕️🤔
 
