@@ -1,3 +1,4 @@
+yo i get mad very easily 
 ![](https://files.catbox.moe/zgnpa2.png)
 
 goodbye everyone😭😭😭😭😭👋👋👋👋👋👋👋 ![](https://file.garden/aQGrUXVQel9xbBYT/kendrick_lamar_left_the_group.gif)
