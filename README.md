@@ -1,3 +1,5 @@
+witch pls add your strawpage onto yo rentry
+
 yo i get mad very easily 
 ![](https://files.catbox.moe/zgnpa2.png)
 
