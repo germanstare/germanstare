@@ -4,7 +4,8 @@ https://github.com/user-attachments/assets/ffeb4657-b525-490d-864b-4179026388c0
 
 
 
-yo i get mad very easily  hi im xal 19 uh cis guy idk what else to say
+yo i get mad very easily  hi im xal 19 uh cis guy idk what else to say 
+some of my friends use she on me so idc
 ![](https://files.catbox.moe/zgnpa2.png)
 
 
