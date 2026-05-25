@@ -1,6 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= 👁️‍🗨️&color=000000&style=water" align="left">
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ [**readOk?**](https://rentry.co/conexion)‎‎[**rentry**](https://rentry.co/r4trick)[**strawpage**](https://nemtrick.straw.page)[**atabook**](https://sharpness.atabook.org)
+![](https://files.catbox.moe/14jipk.gif)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎[**@methodreal**](https://github.com/methodreal)
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_7716.jpeg) ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_7718.jpeg)
