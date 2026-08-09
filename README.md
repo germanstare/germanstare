@@ -1,3 +1,11 @@
+
+
+https://github.com/user-attachments/assets/545b0bb9-c554-4e09-861f-3f1dab36b712
+
+
+
+
+
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= mamas&color=000000&style=water" align="left">
 .
 
