@@ -7,9 +7,7 @@ i live flowery
 
 
 super psycho love [@deepaffection](https://github.com/deepaffection)
-![](https://file.garden/aQGrUXVQel9xbBYT/image.png)
-
-[rentry](https://rentry.co/fiowery) [atabook](https://flowery.atabook.org/) [strawpage](https://nemtrick.straw.page/) wip wip wip‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎[**@methodreal**](https://github.com/methodreal)
+![](https://file.garden/aQGrUXVQel9xbBYT/image.png)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎[**@methodreal**](https://github.com/methodreal)
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_7716.jpeg)
 
 👇👇👇[@spacebombed](https://github.com/spacebombed) threatening me btw
