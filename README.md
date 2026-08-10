@@ -1,5 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= flowerys&color=f9ec00&style=water" align="left">
 
+[@beauty memories ](https://vevo.straw.page)
+
 i live flowery
 
 ![](https://media1.tenor.com/m/WWNkg3KUcoYAAAAC/flowers-flowery.gif)
