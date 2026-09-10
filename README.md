@@ -1,6 +1,6 @@
-<img src="https://komarev.com/ghpvc/?username=germanstare&label= flowerys&color=f9ec00&style=water" align="left">
+<img src="https://komarev.com/ghpvc/?username=germanstare&label= hi&color=000000&style=water" align="left">
 
-[ꫂ ၴႅၴ](https://rentry.co/astragem)  [ꫂ ၴႅၴ](https://flowery.atabook.org/)  [ꫂ ၴႅၴ](https://r4trick.straw.page) [ꫂ ၴႅၴ]((https://vevo.straw.page)) [ꫂ ၴႅၴ](https://github.com/poisonedRitual)
+[ꫂ ၴႅၴ](https://rentry.co/astragem)  [ꫂ ၴႅၴ](https://flowery.atabook.org/)  [ꫂ ၴႅၴ](https://r4trick.straw.page) [ꫂ ၴႅၴ](https://vevo.straw.page) [ꫂ ၴႅၴ](https://github.com/poisonedRitual)
 
 [@beauty memories ](https://vevo.straw.page)
 
