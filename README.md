@@ -1,15 +1,9 @@
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= flowerys&color=f9ec00&style=water" align="left">
 
+[ꫂ ၴႅၴ](https://rentry.co/astragem)  [ꫂ ၴႅၴ](https://flowery.atabook.org/)  [ꫂ ၴႅၴ](https://r4trick.straw.page) [ꫂ ၴႅၴ]((https://vevo.straw.page)) [ꫂ ၴႅၴ](https://github.com/poisonedRitual)
+
 [@beauty memories ](https://vevo.straw.page)
 
-i live flowery
-
-![](https://media1.tenor.com/m/WWNkg3KUcoYAAAAC/flowers-flowery.gif)
-
-
-
-super psycho love [@deepaffection](https://github.com/deepaffection)
-![](https://file.garden/aQGrUXVQel9xbBYT/image.png)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎‎ ‎ ‎ ‎[**@methodreal**](https://github.com/methodreal)
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_7716.jpeg)
 
 👇👇👇[@spacebombed](https://github.com/spacebombed) threatening me btw
