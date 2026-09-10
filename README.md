@@ -1,9 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= hi&color=000000&style=water" align="left">
 
 [ꫂ ၴႅrentry](https://rentry.co/astragem)  [ꫂ ၴႅၴ atabook](https://flowery.atabook.org/)  [ꫂ ၴႅၴstrawpage](https://r4trick.straw.page) [ꫂ ၴႅၴ memories ](https://vevo.straw.page)
-
-[@beauty memories ](https://vevo.straw.page)
-
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_7716.jpeg)
 
 👇👇👇[@spacebombed](https://github.com/spacebombed) threatening me btw
