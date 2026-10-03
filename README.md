@@ -2,7 +2,7 @@
 
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_6732.gif)
 
-[ꫂ ၴႅrentry](https://rentry.co/astragem)  [ꫂ ၴႅၴ atabook](https://flowery.atabook.org/)  [ꫂ ၴႅၴstrawpage](https://r4trick.straw.page) [ꫂ ၴႅၴ memories ](https://vevo.straw.page)
+[ꫂ ၴႅrentry](https://rentry.co/astragem)  [ꫂ ၴႅၴ atabook](https://r4trick.atabook.org/)  [ꫂ ၴႅၴstrawpage](https://r4trick.straw.page) [ꫂ ၴႅၴ memories ](https://vevo.straw.page)
 
 [@methodreal](https://github.com/methodreal)
 ![](https://file.garden/aQGrUXVQel9xbBYT/IMG_7716.jpeg)
