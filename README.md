@@ -1,6 +1,14 @@
 <img src="https://komarev.com/ghpvc/?username=germanstare&label= hi&color=000000&style=water" align="left">
 
-![](https://file.garden/aQGrUXVQel9xbBYT/IMG_6732.gif)
+
+https://github.com/user-attachments/assets/34aed2ef-99ea-4c74-82cf-e6ee32adb0c3
+
+
+
+
+
+
+
 
 [ꫂ ၴႅrentry](https://rentry.co/astragem)  [ꫂ ၴႅၴ atabook](https://r4trick.atabook.org/)  [ꫂ ၴႅၴstrawpage](https://r4trick.straw.page) [ꫂ ၴႅၴ memories ](https://vevo.straw.page)
 
